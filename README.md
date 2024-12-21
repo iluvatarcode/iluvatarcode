@@ -1,6 +1,4 @@
 # 💫 About Me:
-🔭 I’m currently working on a couple personal projects, including a platform to sell tickets for a local forum in my city. <br>👯 I’m looking to collaborate on any project that can help me grow my portafolio.
-
 
 ## 🌐 Socials:
 
